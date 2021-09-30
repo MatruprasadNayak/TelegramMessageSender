@@ -2,7 +2,7 @@
 
 🆔My YouTube Channel : http://youtube.com/erfan4lx
 
-🆔My Telegram Channel : https://t.me/Erfan4lxTeam
+🆔My Telegram Channel : https://t.me/Erfan4lxTeam1
 
 🆔My Instagram Page : https://www.instagram.com/_erfan4lx_/
 
